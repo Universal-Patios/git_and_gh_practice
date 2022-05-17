@@ -1,0 +1,1 @@
+I want to have a career where there is potential to advance and grow. One that had different directions you can take. I want to have a job that pays decent and allows me the freedom to work from home. 
